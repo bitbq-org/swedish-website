@@ -16,6 +16,6 @@ På grund av sin ständiga närvaro i media och imponerande framgång kommer Bit
 
 ⭐ ⭐ ⭐ ⭐ ⭐, 5 av 5, Fantastiskt!
 
-Jag har bara varit medlem i BitBQ.org i 17 dagar. Men mitt liv har redan förändrats totalt! Inte bara tjänade jag mina första 10 000, utan jag träffade också några otroliga människor under processen. Tack återigen till de två grundarna för att de har gjort detta möjligt för människor som jag!
+Jag har bara varit medlem i BitBQ.org i 17 dagar. Men mitt liv har redan förändrats totalt! Inte bara tjänade jag mina första 1 018 263 kr , utan jag träffade också några otroliga människor under processen. Tack återigen till de två grundarna för att de har gjort detta möjligt för människor som jag!
 
 *av Dennis Wiedmann* - 2021-10-16 22:15:24
